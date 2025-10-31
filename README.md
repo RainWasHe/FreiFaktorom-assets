@@ -1,4 +1,5 @@
 # РЕЛИЗ FREILAND FAKTOROM!
 Долгий путь подошёл к своему концу и мы рады **поприветствовать вас на сервере!**
-![enter image description here](https://cdn.discordapp.com/attachments/945379213005975622/1432031483417067550/-2147483648_-224058.jpg?ex=69042fff&is=6902de7f&hm=0a9a054aeb3545b82eae91e44120b395e1bdd8a940c70a61f559ddcfdfdbcb13)
- *Желаем ваш приятной игры!*
+![](https://cdn.discordapp.com/attachments/1025769125617881202/1433836517339566251/FREIFAKTOROM_ART_1.png?ex=690623d1&is=6904d251&hm=9a2860c79c14fdc03cfeb96c90bed254bdb2c580a527f3fa444f5ae5639527e4)
+
+ *Желаем вам приятной игры!*
